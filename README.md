@@ -1,2 +1,2 @@
 # disquad
-test
+you're all shitkids
